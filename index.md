@@ -1,4 +1,5 @@
 # laufen Netflix und Co. der Fernsehbranche den Rang ab?
+![Netflix](01.jpg)
 
 
 Kann das klassische Fernsehen den nicht linearen Medienanbietern wie Amazon, Netflix und Co. überhaupt noch etwas entgegensetzen? Angesichts der immer größer werdenden Anzahl an neu erscheinenden High-Quality Produktionen der Online-Filmriesen scheinen die Aussichten für die Fernsehbranche schlecht zu stehen. Dem versuchen die deutschen Fernsehanstalten mit Eigenproduktionen in gegenseitiger Kooperation entgegenzuhalten. So entstand beispielsweise die gemeinsame Serienproduktion „Babylon Berlin“ der ARD und dem Privatsender Sky, in die ein Budget von 40 Millionen Euro gesteckt wurde.  Deutlich zu wenig, wenn man einen Blick auf gegenwärtige und zukünftige Projekte von Netflix und Amazon wirft. 
